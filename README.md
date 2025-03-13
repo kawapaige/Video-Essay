@@ -8,9 +8,9 @@ influencing how we think and act. I included research about superstitions. I als
 and the good and bad they can cause. Overall, superstitions are not real and just the brain trying to make conclusions and find patterns.
 
 ## Credits
-* Photo by Lucas Andrade on (https://unsplash.com/photos/a-person-holding-a-candle-TXb8hGw-4O0)
-* Photo by Jordi Orts Seagales on (https://unsplash.com/photos/a-black-cat-walking-across-a-brick-walkway-135DS8Ghm2A)
-* Video by Marcus Aurelius on (https://www.pexels.com/video/high-angle-shot-of-a-woman-putting-on-socks-9787540/)
-* Video by Tima Miroshnichenko on (https://www.pexels.com/video/high-angle-shot-of-a-man-scoring-point-in-basketball-5586712/)
-* Photo by Ellie Burgin on (https://www.pexels.com/photo/black-birds-on-tomb-stones-3498985/)
-* Photo by Sincerely Media on (https://unsplash.com/photos/pink-and-white-light-illustration-7ZXx3JofFVY)
+* Photo by Lucas Andrade on [https://unsplash.com/photos/a-person-holding-a-candle-TXb8hGw-4O0]
+* Photo by Jordi Orts Seagales on [https://unsplash.com/photos/a-black-cat-walking-across-a-brick-walkway-135DS8Ghm2A]
+* Video by Marcus Aurelius on [https://www.pexels.com/video/high-angle-shot-of-a-woman-putting-on-socks-9787540/]
+* Video by Tima Miroshnichenko on [https://www.pexels.com/video/high-angle-shot-of-a-man-scoring-point-in-basketball-5586712/]
+* Photo by Ellie Burgin on [https://www.pexels.com/photo/black-birds-on-tomb-stones-3498985/]
+* Photo by Sincerely Media on [https://unsplash.com/photos/pink-and-white-light-illustration-7ZXx3JofFVY]
