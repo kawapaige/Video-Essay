@@ -5,7 +5,7 @@
 My video essay talks bout the background behind superstitions and why they may seem so important to people. 
 Superstitions are enduring beliefs that continue to shape the behaviors of individuals in everyday life, 
 influencing how we think and act. I included research about superstitions. I also touched on the positive and negatives of superstitions
-and the good and bad they can cause. Does the comfort of having superstitions outweigh the cons?
+and the good and bad they can cause. Overall, superstitions are not real and just the brain trying to make conclusions and find patterns.
 
 ## Credits
 * Photo by Lucas Andrade on (https://unsplash.com/photos/a-person-holding-a-candle-TXb8hGw-4O0)
