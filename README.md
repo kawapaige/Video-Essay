@@ -13,3 +13,4 @@ and the good and bad they can cause. Overall, superstitions are not real and jus
 * Video by Marcus Aurelius on (https://www.pexels.com/video/high-angle-shot-of-a-woman-putting-on-socks-9787540/)
 * Video by Tima Miroshnichenko on (https://www.pexels.com/video/high-angle-shot-of-a-man-scoring-point-in-basketball-5586712/)
 * Photo by Ellie Burgin on (https://www.pexels.com/photo/black-birds-on-tomb-stones-3498985/)
+* Photo by Sincerely Media on (https://unsplash.com/photos/pink-and-white-light-illustration-7ZXx3JofFVY)
